@@ -1,1 +1,16 @@
-Meme based #homeworkslave store in created 69 seconds by a Pepe lover who is also a nerd. Love r/aww
+You will probably never know my real name or any other details about me, nevertheless I would like to introduce myself.
+
+⚡Username: 
+
+↳ PepeLover69
+
+⚡What I do: 
+↳ I am the CEO of NoTime2Stress, an online store for learning materials for students. 
+
+⚡Hobbies: 
+
+↳ Netflix, learning and technology
+
+⚡Things I like: 
+
+↳ r/aww, memes (Bongo cat, Pepe)
