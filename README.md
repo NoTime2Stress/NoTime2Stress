@@ -9,8 +9,8 @@ You will probably never know my real name or any other details about me, neverth
 
 ⚡Hobbies: 
 
-↳ Netflix, learning and technology
+↳ Netflix, learning and building pcs
 
 ⚡Things I like: 
 
-↳ r/aww, memes (Bongo cat, Pepe)
+↳ r/aww,Bongo Cat, Pepe, Rick
